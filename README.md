@@ -11,7 +11,7 @@ ______ _       _____               _
          |___/                       
 ```
 
-### Liberdade é ter um BigCard
+### Liberdade é ter um BigCard!
 
 Benefícios, convênios e crédito, direto de Governador Valadares (MG) desde 2001.
 
